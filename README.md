@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AMTSNIPERGOD
+- 👀 I’m interested in Gaming & Cheating/Hacking
+- 🌱 I’m currently learning Nothing
+- 📫 How to reach me in discord AMTSNIPERGOD#4224
